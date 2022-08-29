@@ -1,4 +1,4 @@
-# 出行避坑指南
+# 出行/事件指南
 
 > 声明：  
 > 1、本文中无先后排序；  
@@ -9,9 +9,21 @@
 * ## 河北  
     * ### 唐山  
         > 2022年6月 唐山烧烤店打人事件  [https://baike.baidu.com/item/6%C2%B710%E5%94%90%E5%B1%B1%E7%83%A7%E7%83%A4%E5%BA%97%E6%89%93%E4%BA%BA%E4%BA%8B%E4%BB%B6/61383391?fr=aladdin](https://baike.baidu.com/item/6%C2%B710%E5%94%90%E5%B1%B1%E7%83%A7%E7%83%A4%E5%BA%97%E6%89%93%E4%BA%BA%E4%BA%8B%E4%BB%B6/61383391?fr=aladdin)  
-  
+          2022年8月 唐山烧烤店打人事件后续：唐山烧烤店打人案保护伞被查 [https://baijiahao.baidu.com/s?id=1742453899156288360](https://baijiahao.baidu.com/s?id=1742453899156288360)
 * ## 湖北
     * ### 武汉
         * #### 新洲区
             * ##### 熊店村  
                 > 2022年8月 投资百万种千亩南瓜遭老人组团偷窃  [https://www.163.com/dy/article/HFGAOV1U0532O6GK.html](https://www.163.com/dy/article/HFGAOV1U0532O6GK.html)  
+
+* ## 北京
+    * ### 北师大
+        * #### 董藩
+            > 2022年8月 教授建议农民县城买房开车回村种地 [https://www.163.com/dy/article/HFRM4GTH055061FK.html](https://www.163.com/dy/article/HFRM4GTH055061FK.html)
+                 
+* ## 陕西
+    * ### 西安
+        * #### 长安区
+            * ##### 西北大学文学院
+                > 2022年8月 贾平凹之女贾浅浅拟入中国作协引争议 [https://m.thepaper.cn/baijiahao_19610897](https://m.thepaper.cn/baijiahao_19610897)
+    
