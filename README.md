@@ -19,7 +19,7 @@
 
 * ## 北京
     * ### 北师大
-        * #### 董藩
+        * #### 某教授
             > 2022年8月 教授建议农民县城买房开车回村种地 [https://www.163.com/dy/article/HFRM4GTH055061FK.html](https://www.163.com/dy/article/HFRM4GTH055061FK.html)  
                  
 * ## 陕西
