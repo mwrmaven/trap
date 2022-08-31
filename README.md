@@ -1,4 +1,4 @@
-# 出行/事件指南
+# 出行/事件/食品指南
 
 > 声明：  
 > 1、本文中无先后排序；  
@@ -37,3 +37,12 @@
     * ### 青岛
         > 2022年5月 山东情侣旅游被坐在车里的男子调戏，没想到6个人出来殴打情侣 [https://www.163.com/dy/article/H9G53IB70517CEDK.html](https://www.163.com/dy/article/H9G53IB70517CEDK.html)  
           2022年6月 山东青岛6人当街殴打情侣后续 [https://baijiahao.baidu.com/s?id=1734844260062808122&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1734844260062808122&wfr=spider&for=pc)
+
+* ## 新疆
+    * ### 牛奶
+        > 2022年7月 麦趣尔纯牛奶不合格？官方通报 [https://m.gmw.cn/baijia/2022-07/03/1303026181.html](https://m.gmw.cn/baijia/2022-07/03/1303026181.html)  
+          2022年8月 麦趣尔牛奶后续：“网红牛奶”麦趣尔，被罚款7315.1万元！ [https://m.thepaper.cn/baijiahao_19573409](https://m.thepaper.cn/baijiahao_19573409)  
+
+                 
+                 
+                 
