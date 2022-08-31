@@ -43,6 +43,18 @@
         > 2022年7月 麦趣尔纯牛奶不合格？官方通报 [https://m.gmw.cn/baijia/2022-07/03/1303026181.html](https://m.gmw.cn/baijia/2022-07/03/1303026181.html)  
           2022年8月 麦趣尔牛奶后续：“网红牛奶”麦趣尔，被罚款7315.1万元！ [https://m.thepaper.cn/baijiahao_19573409](https://m.thepaper.cn/baijiahao_19573409)  
 
-                 
-                 
+* ## 四川
+    * ### 成都
+        > 2022年8月 官方回应成都一涉疫理发店消杀被收1.6万元：已约谈相关企业负责人，正在调查 [https://www.toutiao.com/article/7137923297026572832/?channel=&source=search_tab](https://www.toutiao.com/article/7137923297026572832/?channel=&source=search_tab)  
+
+* ## 安徽
+    * ### 安庆
+        * #### 怀宁县
+            > 2022年8月 安徽一县殡仪馆群发“温馨”短信，居民称“瘆得慌” [https://www.toutiao.com/article/7137511774685037087/?channel=&source=search_tab](https://www.toutiao.com/article/7137511774685037087/?channel=&source=search_tab)  
+
+
+
+
+
+
                  
