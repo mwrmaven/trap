@@ -53,8 +53,8 @@
         * #### 怀宁县
             > 2022年8月 安徽一县殡仪馆群发“温馨”短信，居民称“瘆得慌” [https://www.toutiao.com/article/7137511774685037087/?channel=&source=search_tab](https://www.toutiao.com/article/7137511774685037087/?channel=&source=search_tab)  
 
-
-
+* ## 专家（这里把专家单列一个标题，因为专家已经脱离了群众，脱离了实际，是个贬义词了）
+    > 2022年9月 [https://haokan.baidu.com/v?pd=wisenatural&vid=7951155377261646566](https://haokan.baidu.com/v?pd=wisenatural&vid=7951155377261646566)  
 
 
 
