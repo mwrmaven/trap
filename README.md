@@ -13,6 +13,7 @@
 
 * ## 湖北
     * ### 武汉
+        > 2022年8月 武汉市中重型柴油大货车上牌通过正规渠道极其困难，而旁边的中介却十分猖獗，声称不找他们就无法办理 [https://www.toutiao.com/article/7137646249716580901/?tt_from=copy_link&utm_campaign=client_share&app=news_article&utm_source=copy_link&iid=0&utm_medium=toutiao_android&use_new_style=1&share_token=9ae198f4-7319-46f6-9bc5-948898ad1b7b](https://www.toutiao.com/article/7137646249716580901/?tt_from=copy_link&utm_campaign=client_share&app=news_article&utm_source=copy_link&iid=0&utm_medium=toutiao_android&use_new_style=1&share_token=9ae198f4-7319-46f6-9bc5-948898ad1b7b)  
         * #### 新洲区
             * ##### 熊店村  
                 > 2022年8月 投资百万种千亩南瓜遭老人组团偷窃  [https://www.163.com/dy/article/HFGAOV1U0532O6GK.html](https://www.163.com/dy/article/HFGAOV1U0532O6GK.html)  
