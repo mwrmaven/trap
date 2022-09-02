@@ -8,7 +8,7 @@
 
 * ## 河北  
     * ### 唐山  
-        > 2022年6月 唐山烧烤店打人事件  [https://baike.baidu.com/item/6%C2%B710%E5%94%90%E5%B1%B1%E7%83%A7%E7%83%A4%E5%BA%97%E6%89%93%E4%BA%BA%E4%BA%8B%E4%BB%B6/61383391?fr=aladdin](https://baike.baidu.com/item/6%C2%B710%E5%94%90%E5%B1%B1%E7%83%A7%E7%83%A4%E5%BA%97%E6%89%93%E4%BA%BA%E4%BA%8B%E4%BB%B6/61383391?fr=aladdin)  
+        > 2022年6月 唐山烧烤店打人事件 [https://baike.baidu.com/item/6%C2%B710%E5%94%90%E5%B1%B1%E7%83%A7%E7%83%A4%E5%BA%97%E6%89%93%E4%BA%BA%E4%BA%8B%E4%BB%B6/61383391?fr=aladdin](https://baike.baidu.com/item/6%C2%B710%E5%94%90%E5%B1%B1%E7%83%A7%E7%83%A4%E5%BA%97%E6%89%93%E4%BA%BA%E4%BA%8B%E4%BB%B6/61383391?fr=aladdin)  
           2022年8月 唐山烧烤店打人事件后续：唐山烧烤店打人案保护伞被查 [https://baijiahao.baidu.com/s?id=1742453899156288360](https://baijiahao.baidu.com/s?id=1742453899156288360)  
 
 * ## 湖北
@@ -53,9 +53,14 @@
         * #### 怀宁县
             > 2022年8月 安徽一县殡仪馆群发“温馨”短信，居民称“瘆得慌” [https://www.toutiao.com/article/7137511774685037087/?channel=&source=search_tab](https://www.toutiao.com/article/7137511774685037087/?channel=&source=search_tab)  
 
+* ## 上海
+    > 2022年8月 国务院大督查曝光！上海办理居住证要先缴税？ [https://m.thecover.cn/video_details.html?id=9643046](https://m.thecover.cn/video_details.html?id=9643046)  
 
-
-
+* ## 广东
+    * ### 惠州
+        * #### 惠阳区
+            * ##### 某公寓楼  
+                > 2022年8月 女子遭入室抢劫身中十多刀装死逃生 官方：嫌犯已移交检察院 [toutiao.com/article/7138022619235746318/?log_from=c3958ca38fd07_1661999669127](toutiao.com/article/7138022619235746318/?log_from=c3958ca38fd07_1661999669127)  
 
 
                  
