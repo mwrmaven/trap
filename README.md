@@ -53,6 +53,7 @@
         * #### 怀宁县
             > 2022年8月 安徽一县殡仪馆群发“温馨”短信，居民称“瘆得慌” [https://www.toutiao.com/article/7137511774685037087/?channel=&source=search_tab](https://www.toutiao.com/article/7137511774685037087/?channel=&source=search_tab)  
 
+<<<<<<< HEAD
 * ## 上海
     > 2022年8月 国务院大督查曝光！上海办理居住证要先缴税？ [https://m.thecover.cn/video_details.html?id=9643046](https://m.thecover.cn/video_details.html?id=9643046)  
 
@@ -61,6 +62,11 @@
         * #### 惠阳区
             * ##### 某公寓楼  
                 > 2022年8月 女子遭入室抢劫身中十多刀装死逃生 官方：嫌犯已移交检察院 [toutiao.com/article/7138022619235746318/?log_from=c3958ca38fd07_1661999669127](toutiao.com/article/7138022619235746318/?log_from=c3958ca38fd07_1661999669127)  
+
+* ## 专家（这里把专家单列一个标题，因为专家已经脱离了群众，脱离了实际，是个贬义词了）
+    > 2022年9月 专家脚踩地毯走在玉米地里 [https://haokan.baidu.com/v?pd=wisenatural&vid=7951155377261646566](https://haokan.baidu.com/v?pd=wisenatural&vid=7951155377261646566)  
+
+
 
 
                  
