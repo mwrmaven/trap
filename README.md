@@ -17,6 +17,8 @@
         * #### 新洲区
             * ##### 熊店村  
                 > 2022年8月 投资百万种千亩南瓜遭老人组团偷窃  [https://www.163.com/dy/article/HFGAOV1U0532O6GK.html](https://www.163.com/dy/article/HFGAOV1U0532O6GK.html)  
+    * ### 荆州
+        > 2022年9月 女子治疗胆结石被收“牙科6000元”，荆州市中心医院称操作失误已退费 [https://www.toutiao.com/article/7138696631125279265/?channel=&source=search_tab](https://www.toutiao.com/article/7138696631125279265/?channel=&source=search_tab)  
 
 * ## 北京
     * ### 北师大
@@ -34,7 +36,6 @@
         * #### 历城区
             * ##### 山东大学
                 > 2019年7月 一个留学生配仨异性学伴，咋回事？山东大学就“留学生学伴”致歉 [https://www.toutiao.com/article/6712681848985616900/?channel=&source=search_tab](https://www.toutiao.com/article/6712681848985616900/?channel=&source=search_tab)  
-
     * ### 青岛
         > 2022年5月 山东情侣旅游被坐在车里的男子调戏，没想到6个人出来殴打情侣 [https://www.163.com/dy/article/H9G53IB70517CEDK.html](https://www.163.com/dy/article/H9G53IB70517CEDK.html)  
           2022年6月 山东青岛6人当街殴打情侣后续 [https://baijiahao.baidu.com/s?id=1734844260062808122&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1734844260062808122&wfr=spider&for=pc)
@@ -47,11 +48,16 @@
 * ## 四川
     * ### 成都
         > 2022年8月 官方回应成都一涉疫理发店消杀被收1.6万元：已约谈相关企业负责人，正在调查 [https://www.toutiao.com/article/7137923297026572832/?channel=&source=search_tab](https://www.toutiao.com/article/7137923297026572832/?channel=&source=search_tab)  
-
+    * ### 广安
+        > 2022年9月 网传四川一学校要求学生开学自带床板，教体局：并非强制要求，可用纸板替代 [https://www.toutiao.com/article/7138363374676476420/?channel=&source=search_tab](https://www.toutiao.com/article/7138363374676476420/?channel=&source=search_tab)  
+    
 * ## 安徽
     * ### 安庆
-        * #### 怀宁县
+        * #### 怀宁
             > 2022年8月 安徽一县殡仪馆群发“温馨”短信，居民称“瘆得慌” [https://www.toutiao.com/article/7137511774685037087/?channel=&source=search_tab](https://www.toutiao.com/article/7137511774685037087/?channel=&source=search_tab)  
+    * ### 黄山
+        * #### 休宁
+            > 2022年8月 展开“伤人致死被判12年未蹲监狱”案23人被处理，死者家人质疑“调查结果未公开” [https://www.toutiao.com/video/7138743252974357768/](https://www.toutiao.com/video/7138743252974357768/)  
 
 * ## 上海
     > 2022年8月 国务院大督查曝光！上海办理居住证要先缴税？ [https://m.thecover.cn/video_details.html?id=9643046](https://m.thecover.cn/video_details.html?id=9643046)  
@@ -62,9 +68,34 @@
             * ##### 某公寓楼  
                 > 2022年8月 女子遭入室抢劫身中十多刀装死逃生 官方：嫌犯已移交检察院 [toutiao.com/article/7138022619235746318/?log_from=c3958ca38fd07_1661999669127](toutiao.com/article/7138022619235746318/?log_from=c3958ca38fd07_1661999669127)  
 
+* ## 河南
+    * ### 禹州
+        > 2022年9月 河南村镇银行垫付上限确定50万 [https://www.toutiao.com/article/7137503220289028648/?channel=&source=search_tab](https://www.toutiao.com/article/7137503220289028648/?channel=&source=search_tab)  
+
+* ## 湖南
+    * ### 娄底
+        > 2022年9月 湖南一宝马女司机疑酒驾撞人一路拖行,被交警拦下后怒斥 [https://www.ixigua.com/7139078838683697677?is_new_connect=0&is_new_user=0](https://www.ixigua.com/7139078838683697677?is_new_connect=0&is_new_user=0)  
+          2022年9月 醉驾撞人后续：湖南娄底警方：一女子醉驾撞人拖行被刑拘，伤者生命体征平稳 [https://www.toutiao.com/article/7139291563016028709/?traffic_source=&in_ogs=&utm_source=&source=search_tab&utm_medium=wap_search&original_source=&in_tfs=&channel=](https://www.toutiao.com/article/7139291563016028709/?traffic_source=&in_ogs=&utm_source=&source=search_tab&utm_medium=wap_search&original_source=&in_tfs=&channel=)  
+    * ### 长沙
+        > 2022年8月 多人举报湘雅二院刘翔峰：我求你救命，你只想黑钱 [https://www.toutiao.com/article/7137963807841960487/?channel=&source=search_tab](https://www.toutiao.com/article/7137963807841960487/?channel=&source=search_tab)  
+          2022年9月 湘雅二院再曝事故：34岁独子一个月花54万病亡，医院否认延误治疗 [https://www.toutiao.com/article/7138611171036250636/?channel=&source=search_tab](https://www.toutiao.com/article/7138611171036250636/?channel=&source=search_tab)  
+          2022年8月 一家旅老板威胁业主，放出狠话这个地方谁都搞不过我 [https://www.163.com/v/video/VXF3TSJ2U.html](https://www.163.com/v/video/VXF3TSJ2U.html)  
+
+* ## 福建
+    * ### 泉州
+        * #### 惠安
+            > 2022年9月 义务教育的内容：政府免费提供作业本，尴尬的是谁？ [https://www.toutiao.com/article/7139344284599763493/?channel=&source=search_tab](https://www.toutiao.com/article/7139344284599763493/?channel=&source=search_tab)  
+
+* ## 浙江
+    * ### 丽水
+        * #### 缙云
+            > 2022年7月 一家四口光明正大偷多肉，母亲扬言有监控也拿走 [https://www.163.com/v/video/VMBO16VAI.html](https://www.163.com/v/video/VMBO16VAI.html) 
+
 * ## 专家（这里把专家单列一个标题，因为专家已经脱离了群众，脱离了实际，是个贬义词了）
     > 2022年9月 专家脚踩地毯走在玉米地里 [https://haokan.baidu.com/v?pd=wisenatural&vid=7951155377261646566](https://haokan.baidu.com/v?pd=wisenatural&vid=7951155377261646566)  
 
+* ## 广场舞（单独将广场舞拎出来，是因为这已经成为一个大众话题，大部分的广场舞都是损人利己，大部分的广场舞人员都是倚老卖老）
+    > 2022年9月 大妈清早跳广场舞遭住户喷水，社区：这次协调答应换地方 [https://www.toutiao.com/article/7139371190799467041/?channel=&source=search_tab](https://www.toutiao.com/article/7139371190799467041/?channel=&source=search_tab)  
 
 
 
