@@ -75,7 +75,9 @@
 * ## 河南
     * ### 禹州
         > 2022年9月 河南村镇银行垫付上限确定50万 [https://www.toutiao.com/article/7137503220289028648/?channel=&source=search_tab](https://www.toutiao.com/article/7137503220289028648/?channel=&source=search_tab)  
-
+    * ### 济源
+        > 2022年9月 疑孙子被打不敢上学 河南一老人给多名学生下跪求放过 警方已介入 [https://www.toutiao.com/video/7140175343947776526/?log_from=544397d272b5f_1662458232009](https://www.toutiao.com/video/7140175343947776526/?log_from=544397d272b5f_1662458232009) 
+    
 * ## 湖南
     * ### 娄底
         > 2022年9月 湖南一宝马女司机疑酒驾撞人一路拖行,被交警拦下后怒斥 [https://www.ixigua.com/7139078838683697677?is_new_connect=0&is_new_user=0](https://www.ixigua.com/7139078838683697677?is_new_connect=0&is_new_user=0)  
