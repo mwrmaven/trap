@@ -58,7 +58,11 @@
     * ### 黄山
         * #### 休宁
             > 2022年8月 展开“伤人致死被判12年未蹲监狱”案23人被处理，死者家人质疑“调查结果未公开” [https://www.toutiao.com/video/7138743252974357768/](https://www.toutiao.com/video/7138743252974357768/)  
-
+    * ### 宿州
+        * #### 埇桥区
+            * ##### 符离镇
+                > 2022年9月 盲人申请三年才领到的导盲犬被人“顺走”，领养基地：训练成本近20万，已报警 [https://www.toutiao.com/article/7140118892424200735/?channel=&source=search_tab](https://www.toutiao.com/article/7140118892424200735/?channel=&source=search_tab)  
+                  2022年9月 导盲犬被人“顺走”后续：宿州一导盲犬被人“顺走”，训练基地：已平安回家 [https://www.thepaper.cn/newsDetail_forward_19783242](https://www.thepaper.cn/newsDetail_forward_19783242)  
 * ## 上海
     > 2022年8月 国务院大督查曝光！上海办理居住证要先缴税？ [https://m.thecover.cn/video_details.html?id=9643046](https://m.thecover.cn/video_details.html?id=9643046)  
 
@@ -85,17 +89,30 @@
     * ### 泉州
         * #### 惠安
             > 2022年9月 义务教育的内容：政府免费提供作业本，尴尬的是谁？ [https://www.toutiao.com/article/7139344284599763493/?channel=&source=search_tab](https://www.toutiao.com/article/7139344284599763493/?channel=&source=search_tab)  
+    * ### 厦门
+        > 2022年9月 厦门租客为交房花3天打扫卫生，房东竟凑在马桶边挑刺，不想退押金 [https://www.toutiao.com/video/7139736161790099998/?channel=&source=search_tab](https://www.toutiao.com/video/7139736161790099998/?channel=&source=search_tab)
 
 * ## 浙江
     * ### 丽水
         * #### 缙云
             > 2022年7月 一家四口光明正大偷多肉，母亲扬言有监控也拿走 [https://www.163.com/v/video/VMBO16VAI.html](https://www.163.com/v/video/VMBO16VAI.html) 
 
+* ## 广西
+    * ### 柳州
+        > 2022年9月 震惊！不同意凑钱送礼给老师，柳州这家长被逼退出家长群？ [https://www.toutiao.com/article/7140049053781328419/?channel=&source=search_tab](https://www.toutiao.com/article/7140049053781328419/?channel=&source=search_tab)  
+
+* ## 贵州
+    * ### 贵阳
+        > 2022年9月 女子买了一箱12元每斤的李子，总共花了400多元，在箱子底下藏了两瓶矿泉水，女子向店主讨要说法被怼，店家：整个市场都是这么做的，谁来了李子还是这样卖 [https://www.toutiao.com/w/1743197375662088/?traffic_source=&traffic_source=&in_ogs=&in_ogs=&utm_source=&utm_source=&source=search_tab&source=input&utm_medium=wap_search&utm_medium=wap_search&original_source=&original_source=&in_tfs=&in_tfs=&channel=&channel=](https://www.toutiao.com/w/1743197375662088/?traffic_source=&traffic_source=&in_ogs=&in_ogs=&utm_source=&utm_source=&source=search_tab&source=input&utm_medium=wap_search&utm_medium=wap_search&original_source=&original_source=&in_tfs=&in_tfs=&channel=&channel=)  
+
 * ## 专家（这里把专家单列一个标题，因为专家已经脱离了群众，脱离了实际，是个贬义词了）
     > 2022年9月 专家脚踩地毯走在玉米地里 [https://haokan.baidu.com/v?pd=wisenatural&vid=7951155377261646566](https://haokan.baidu.com/v?pd=wisenatural&vid=7951155377261646566)  
 
-* ## 广场舞（单独将广场舞拎出来，是因为这已经成为一个大众话题，大部分的广场舞都是损人利己，大部分的广场舞人员都是倚老卖老）
+* ## 广场舞（单独将广场舞拎出来，是因为这已经成为一个大众话题，大部分的广场舞都是损人利己，大部分的广场舞人员都是倚老卖老）  
     > 2022年9月 大妈清早跳广场舞遭住户喷水，社区：这次协调答应换地方 [https://www.toutiao.com/article/7139371190799467041/?channel=&source=search_tab](https://www.toutiao.com/article/7139371190799467041/?channel=&source=search_tab)  
+
+* ## 一些个妖魔鬼怪
+    > 2022年9月 珲春老徐：国家给老农民每月发100多元，一些农民不仅不感恩，反而抱怨指责。请问你们有良心吗？ [https://www.toutiao.com/w/1742945864853504/?log_from=635cfe129200e_1662438208079#comment](https://www.toutiao.com/w/1742945864853504/?log_from=635cfe129200e_1662438208079#comment)  
 
 
 
