@@ -10,6 +10,11 @@
     * ### 唐山  
         > 2022年6月 唐山烧烤店打人事件 [https://baike.baidu.com/item/6%C2%B710%E5%94%90%E5%B1%B1%E7%83%A7%E7%83%A4%E5%BA%97%E6%89%93%E4%BA%BA%E4%BA%8B%E4%BB%B6/61383391?fr=aladdin](https://baike.baidu.com/item/6%C2%B710%E5%94%90%E5%B1%B1%E7%83%A7%E7%83%A4%E5%BA%97%E6%89%93%E4%BA%BA%E4%BA%8B%E4%BB%B6/61383391?fr=aladdin)  
           2022年8月 唐山烧烤店打人事件后续：唐山烧烤店打人案保护伞被查 [https://baijiahao.baidu.com/s?id=1742453899156288360](https://baijiahao.baidu.com/s?id=1742453899156288360)  
+    * ### 保定
+        > 2022年9月 保定中国银行仁和支行：多年未用的存折被清零注销，我的8000块钱去哪了？ [https://www.toutiao.com/video/7139525662951342596/?log_from=c88fe0d4c5b5b_1662513528583](https://www.toutiao.com/video/7139525662951342596/?log_from=c88fe0d4c5b5b_1662513528583)  
+    * ### 石家庄
+        * #### 桥西区
+            > 2022年7月 文峰美发美容恒大店闭店，顾客退卡无门 [https://www.toutiao.com/video/7122267275108975142/?log_from=0fe51ba8148ce_1662515537747](https://www.toutiao.com/video/7122267275108975142/?log_from=0fe51ba8148ce_1662515537747)  
 
 * ## 湖北
     * ### 武汉
@@ -21,10 +26,13 @@
         > 2022年9月 女子治疗胆结石被收“牙科6000元”，荆州市中心医院称操作失误已退费 [https://www.toutiao.com/article/7138696631125279265/?channel=&source=search_tab](https://www.toutiao.com/article/7138696631125279265/?channel=&source=search_tab)  
 
 * ## 北京
+    > 2022年8月 超市被偷东西是受害者，凭啥还为此买单(偷东西还能偷出道理，真是奇葩) [https://www.toutiao.com/video/7127207472162406915/?log_from=f14e8c85efdda_1662516012958](https://www.toutiao.com/video/7127207472162406915/?log_from=f14e8c85efdda_1662516012958)  
     * ### 北师大
         * #### 某教授
             > 2022年8月 教授建议农民县城买房开车回村种地 [https://www.163.com/dy/article/HFRM4GTH055061FK.html](https://www.163.com/dy/article/HFRM4GTH055061FK.html)  
-                 
+    * ### 联想
+        > 2022年9月 联想：捐赠50万元用于四川泸定抗震救灾 [https://www.toutiao.com/article/7140191870746886690/?log_from=5a8321dfecf2e_1662512402791#comment](https://www.toutiao.com/article/7140191870746886690/?log_from=5a8321dfecf2e_1662512402791#comment)        
+     
 * ## 陕西
     * ### 西安
         * #### 长安区
@@ -74,10 +82,13 @@
 
 * ## 河南
     * ### 禹州
-        > 2022年9月 河南村镇银行垫付上限确定50万 [https://www.toutiao.com/article/7137503220289028648/?channel=&source=search_tab](https://www.toutiao.com/article/7137503220289028648/?channel=&source=search_tab)  
+        > 2022年6月 河南村镇银行登记客户资金信息，储户质疑银行应有数据 [https://www.toutiao.com/article/7111232488344977957/?log_from=123e639bc8dea_1662514928166](https://www.toutiao.com/article/7111232488344977957/?log_from=123e639bc8dea_1662514928166)  
+          2022年9月 河南村镇银行垫付上限确定50万 [https://www.toutiao.com/article/7137503220289028648/?channel=&source=search_tab](https://www.toutiao.com/article/7137503220289028648/?channel=&source=search_tab)  
+          
     * ### 济源
         > 2022年9月 疑孙子被打不敢上学 河南一老人给多名学生下跪求放过 警方已介入 [https://www.toutiao.com/video/7140175343947776526/?log_from=544397d272b5f_1662458232009](https://www.toutiao.com/video/7140175343947776526/?log_from=544397d272b5f_1662458232009) 
-    
+          2022年9月 老人下跪后续：河南济源通报“老人下跪”：警方已立案，责成学校开展学生道德教育 [https://www.toutiao.com/article/7140392166622233122/?log_from=13bcef7b519de_1662515305783](https://www.toutiao.com/article/7140392166622233122/?log_from=13bcef7b519de_1662515305783)  
+
 * ## 湖南
     * ### 娄底
         > 2022年9月 湖南一宝马女司机疑酒驾撞人一路拖行,被交警拦下后怒斥 [https://www.ixigua.com/7139078838683697677?is_new_connect=0&is_new_user=0](https://www.ixigua.com/7139078838683697677?is_new_connect=0&is_new_user=0)  
@@ -86,7 +97,7 @@
         > 2022年8月 多人举报湘雅二院刘翔峰：我求你救命，你只想黑钱 [https://www.toutiao.com/article/7137963807841960487/?channel=&source=search_tab](https://www.toutiao.com/article/7137963807841960487/?channel=&source=search_tab)  
           2022年9月 湘雅二院再曝事故：34岁独子一个月花54万病亡，医院否认延误治疗 [https://www.toutiao.com/article/7138611171036250636/?channel=&source=search_tab](https://www.toutiao.com/article/7138611171036250636/?channel=&source=search_tab)  
           2022年8月 一家旅老板威胁业主，放出狠话这个地方谁都搞不过我 [https://www.163.com/v/video/VXF3TSJ2U.html](https://www.163.com/v/video/VXF3TSJ2U.html)  
-
+          2022年9月 敢报警就弄死你的孩子 [https://www.toutiao.com/w/1742996874955776/?log_from=629242e67a02d_1662511410630](https://www.toutiao.com/w/1742996874955776/?log_from=629242e67a02d_1662511410630)  
 * ## 福建
     * ### 泉州
         * #### 惠安
@@ -106,6 +117,15 @@
 * ## 贵州
     * ### 贵阳
         > 2022年9月 女子买了一箱12元每斤的李子，总共花了400多元，在箱子底下藏了两瓶矿泉水，女子向店主讨要说法被怼，店家：整个市场都是这么做的，谁来了李子还是这样卖 [https://www.toutiao.com/w/1743197375662088/?traffic_source=&traffic_source=&in_ogs=&in_ogs=&utm_source=&utm_source=&source=search_tab&source=input&utm_medium=wap_search&utm_medium=wap_search&original_source=&original_source=&in_tfs=&in_tfs=&channel=&channel=](https://www.toutiao.com/w/1743197375662088/?traffic_source=&traffic_source=&in_ogs=&in_ogs=&utm_source=&utm_source=&source=search_tab&source=input&utm_medium=wap_search&utm_medium=wap_search&original_source=&original_source=&in_tfs=&in_tfs=&channel=&channel=)  
+          2022年9月 融创九樾府公众号发文号召业主给小区外国人住户捐物资，清单包括牛排、三文鱼、红酒等 [https://www.toutiao.com/w/1743185781426191/?log_from=dcbeb20b1415b_1662513259181](https://www.toutiao.com/w/1743185781426191/?log_from=dcbeb20b1415b_1662513259181)  
+
+* ## 云南
+    * ### 昆明
+        > 2022年9月 云南昆明，唐女士在某酒店的茶水吧台处，倒了一杯苦荞茶，竟然是消毒液“优氯净” [https://www.toutiao.com/w/1743144458677248/](https://www.toutiao.com/w/1743144458677248/)  
+
+* ## 黑龙江
+    * ### 绥化
+        > 2022年9月 全网最有恃无恐最淡定的小偷 [https://www.toutiao.com/w/1743184804829187/](https://www.toutiao.com/w/1743184804829187/)  
 
 * ## 专家（这里把专家单列一个标题，因为专家已经脱离了群众，脱离了实际，是个贬义词了）
     > 2022年9月 专家脚踩地毯走在玉米地里 [https://haokan.baidu.com/v?pd=wisenatural&vid=7951155377261646566](https://haokan.baidu.com/v?pd=wisenatural&vid=7951155377261646566)  
