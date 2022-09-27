@@ -207,7 +207,11 @@
     * ### 安徽
         * #### 合肥
             > 2022年9月 安徽合肥小区保安殴打业主，众多业主聚集高喊“换掉物业” [https://www.toutiao.com/video/7145778622328995852/?log_from=bbf46dec316e4_1664159617019](https://www.toutiao.com/video/7145778622328995852/?log_from=bbf46dec316e4_1664159617019)  
-    
+
+* ## 是什么让社会越来越冷漠
+    > 2022年9月 极目短评｜男子勇救女童却被指责“手碰隐私部位”：龌龊者看到的世界就是龌龊的 [https://www.toutiao.com/article/7147617901280035364/?log_from=bf646e3c32f77_1664240490097](https://www.toutiao.com/article/7147617901280035364/?log_from=bf646e3c32f77_1664240490097)  
+      2021年8月 河北17岁男孩海边救起三女子后遇难，网传获救者翻脸不认人，男孩家属称不属实 [https://www.toutiao.com/article/6994391872609354270/?channel=&source=search_tab](https://www.toutiao.com/article/6994391872609354270/?channel=&source=search_tab)  
+
 ***  
 
 * ## 河北  
