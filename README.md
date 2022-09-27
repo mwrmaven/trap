@@ -14,6 +14,8 @@
 
 * ## 广场舞（单独将广场舞拎出来，是因为这已经成为一个大众话题，大部分的广场舞都是损人利己，大部分的广场舞人员都是倚老卖老）  
     > 2022年9月 大妈清早跳广场舞遭住户喷水，社区：这次协调答应换地方 [https://www.toutiao.com/article/7139371190799467041/?channel=&source=search_tab](https://www.toutiao.com/article/7139371190799467041/?channel=&source=search_tab)  
+    * ### 广东
+        > 2022年9月 广东一大妈为跳广场舞驱赶篮球场打球男生，不料摔了个狗吃屎 [https://www.toutiao.com/video/7147625918054268931/?log_from=2b46d1646388e_1664239891625](https://www.toutiao.com/video/7147625918054268931/?log_from=2b46d1646388e_1664239891625)
 
 * ## 一些个妖魔鬼怪
     > 2022年9月 珲春老徐：国家给老农民每月发100多元，一些农民不仅不感恩，反而抱怨指责。请问你们有良心吗？ [https://www.toutiao.com/w/1742945864853504/?log_from=635cfe129200e_1662438208079#comment](https://www.toutiao.com/w/1742945864853504/?log_from=635cfe129200e_1662438208079#comment)  
@@ -120,6 +122,9 @@
     * ### 陕西
         * #### 渭南
             > 2022年9月 5名男孩爬上车顶蹦跳导致车架变形，车主向家长索要6400元维修费未果，打算诉讼维权 [https://www.toutiao.com/article/7145778507845632515/?log_from=0735e5c7643e8_1664158934669](https://www.toutiao.com/article/7145778507845632515/?log_from=0735e5c7643e8_1664158934669)  
+    * ###河南
+        * ### 焦作
+            > 2022年9月 男子门前晒棉花和芝麻，被3个男孩恶意扯掉扔路上 [https://www.toutiao.com/video/7147593885362048286/?log_from=6484af87e5c3f_1664239889524](https://www.toutiao.com/video/7147593885362048286/?log_from=6484af87e5c3f_1664239889524)  
 
 * ## 为老不尊，倚老卖老（以后怎么尊老？）
     > 2022年9月 大爷#高铁# 抽烟 这根烟金贵 [https://www.toutiao.com/video/7145479799606247432/?log_from=0984952f99af3_1664161728098](https://www.toutiao.com/video/7145479799606247432/?log_from=0984952f99af3_1664161728098)  
@@ -159,6 +164,7 @@
                
 * ## 无题
     > 2022年9月 中国人事科学研究院原院长吴江：退休太早，是人才的浪费 [https://www.toutiao.com/video/7145735180974624013/?log_from=b74f1ea976677_1664159677151](https://www.toutiao.com/video/7145735180974624013/?log_from=b74f1ea976677_1664159677151)  
+      2022年9月 上半年篮球场上种红薯，下半年下雨天打谷子 [https://www.toutiao.com/video/7147720755348930564/?log_from=175a24b130fb7_1664239893136](https://www.toutiao.com/video/7147720755348930564/?log_from=175a24b130fb7_1664239893136)  
     * ### 广东 深圳
         > 2022年8月 演员拍环卫工宣传片 真正的环卫工在旁清扫 [https://www.toutiao.com/video/7136001108765379877/?log_from=c58ffc36d128a_1663053047024](https://www.toutiao.com/video/7136001108765379877/?log_from=c58ffc36d128a_1663053047024)  
     * ### 云南镇雄县、重庆长寿区
@@ -295,6 +301,8 @@
                   2022年9月 导盲犬被人“顺走”后续：宿州一导盲犬被人“顺走”，训练基地：已平安回家 [https://www.thepaper.cn/newsDetail_forward_19783242](https://www.thepaper.cn/newsDetail_forward_19783242)  
     * ### 阜阳
         > 2022年9月 老人在正在运行的收割机前偷玉米 [https://www.toutiao.com/video/7144566912322784525/](https://www.toutiao.com/video/7144566912322784525/)  
+    * ### 滁州
+        > 2022年9月 9月23日，安徽滁州。男子为自己家孩子抢夺玩具，把三岁男孩拖拽倒地。家长：上来就骂我妈妈，不接受道歉 [https://www.toutiao.com/video/7147598455077195011/?log_from=4f6db7f1f7d33_1664239897489](https://www.toutiao.com/video/7147598455077195011/?log_from=4f6db7f1f7d33_1664239897489)  
 
 * ## 上海
     > 2022年8月 国务院大督查曝光！上海办理居住证要先缴税？ [https://m.thecover.cn/video_details.html?id=9643046](https://m.thecover.cn/video_details.html?id=9643046)  
@@ -335,7 +343,7 @@
         > 2022年9月 9月18日，河南济源，一化学公司氯气泄漏，附近群众呕吐不止，官方：泄露已得到有效控制 [https://www.toutiao.com/video/7144935393647971617/?log_from=72ed635b51864_1664158982639](https://www.toutiao.com/video/7144935393647971617/?log_from=72ed635b51864_1664158982639)  
     * ### 周口
         > 2022年9月 9月19日河南周口，老人跟收割机捡玉米一天，司机为了安全给10元让其离开：他捡不了几个玉米 [https://www.toutiao.com/video/7145664230656642340/?log_from=a945c0b000933_1664159666595](https://www.toutiao.com/video/7145664230656642340/?log_from=a945c0b000933_1664159666595)  
-
+    
 * ## 湖南
     * ### 娄底
         > 2022年9月 湖南一宝马女司机疑酒驾撞人一路拖行,被交警拦下后怒斥 [https://www.ixigua.com/7139078838683697677?is_new_connect=0&is_new_user=0](https://www.ixigua.com/7139078838683697677?is_new_connect=0&is_new_user=0)  
@@ -383,12 +391,16 @@
 * ## 云南
     * ### 昆明
         > 2022年9月 云南昆明，唐女士在某酒店的茶水吧台处，倒了一杯苦荞茶，竟然是消毒液“优氯净” [https://www.toutiao.com/w/1743144458677248/](https://www.toutiao.com/w/1743144458677248/)  
-
+    * ### 曲靖
+        > 2022年9月 云南曲靖，一男子因争执将邻居鼻梁打断，态度嚣张，“进去”后瞬间反转 [https://www.toutiao.com/video/7147508086352137486/?log_from=a0cc2139a195c_1664239895234](https://www.toutiao.com/video/7147508086352137486/?log_from=a0cc2139a195c_1664239895234)  
+    
 * ## 黑龙江
     * ### 绥化
         > 2022年9月 全网最有恃无恐最淡定的小偷 [https://www.toutiao.com/w/1743184804829187/](https://www.toutiao.com/w/1743184804829187/)  
     * ### 哈尔滨
         > 2022年9月 醉酒男子买水不付款殴打61岁老人，被老人儿子飞踹反击，老人儿子：打人者行拘15日，我行拘3日 [https://www.toutiao.com/video/7142671684301081869/?log_from=618b0aa1fa6ff_1663053514543](https://www.toutiao.com/video/7142671684301081869/?log_from=618b0aa1fa6ff_1663053514543)  
+    * ### 佳木斯
+        > 2022年9月 网传社区防疫人员将居民大米倒入垃圾桶、鸡蛋捣碎，黑龙江佳木斯通报 [https://www.toutiao.com/article/7147638572416401920/?log_from=c420365703aeb_1664239899161](https://www.toutiao.com/article/7147638572416401920/?log_from=c420365703aeb_1664239899161)  
 
 * ## 吉林
     > 2022年9月 楼上邻居骗走女子新房钥匙，擅将下水管装满天花板 女子: 协商无果 已起诉 [https://www.toutiao.com/video/7146025125886954783/?log_from=3cf7a2e93e09e_1664158793453](https://www.toutiao.com/video/7146025125886954783/?log_from=3cf7a2e93e09e_1664158793453)  
