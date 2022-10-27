@@ -15,6 +15,7 @@
        
 * ## 广场舞（单独将广场舞拎出来，是因为这已经成为一个大众话题，大部分的广场舞都是损人利己，大部分的广场舞人员都是倚老卖老）  
     > 2022年9月 大妈清早跳广场舞遭住户喷水，社区：这次协调答应换地方 [https://www.toutiao.com/article/7139371190799467041/?channel=&source=search_tab](https://www.toutiao.com/article/7139371190799467041/?channel=&source=search_tab)  
+      2022年10月 大妈中考期间占停车位跳广场舞，被劝阻后竟变本加厉跳到12点，结果被人偷袭满身墨水 [https://www.toutiao.com/video/7156550622790025255/?log_from=03adf86ba8eb_1666849484916](https://www.toutiao.com/video/7156550622790025255/?log_from=03adf86ba8eb_1666849484916)  
     * ### 广东
         > 2022年9月 广东一大妈为跳广场舞驱赶篮球场打球男生，不料摔了个狗吃屎 [https://www.toutiao.com/video/7147625918054268931/?log_from=2b46d1646388e_1664239891625](https://www.toutiao.com/video/7147625918054268931/?log_from=2b46d1646388e_1664239891625)
     * ### 湖北
@@ -25,7 +26,14 @@
     > 2022年9月 珲春老徐：国家给老农民每月发100多元，一些农民不仅不感恩，反而抱怨指责。请问你们有良心吗？ [https://www.toutiao.com/w/1742945864853504/?log_from=635cfe129200e_1662438208079#comment](https://www.toutiao.com/w/1742945864853504/?log_from=635cfe129200e_1662438208079#comment)  
       2022年9月 蔚来汽车李斌：不明白为什么买油车，除了闻油味还有什么好？ [https://www.toutiao.com/video/7138702162565005352/](https://www.toutiao.com/video/7138702162565005352/)  
       2022年9月 “正科干部”高速公路倒车被抓，威胁交警“你今后的路还很长” [https://www.toutiao.com/video/7142355301315005696/?log_from=14fba79afc5b2_1663120331895](https://www.toutiao.com/video/7142355301315005696/?log_from=14fba79afc5b2_1663120331895)  
+      2022年10月 专家这是什么理论？“士农工商”你说整没就整没一个？#房产 # [https://www.toutiao.com/video/7156519659276075021/?log_from=dd7fdc0faa175_1666849326702](https://www.toutiao.com/video/7156519659276075021/?log_from=dd7fdc0faa175_1666849326702)  
 
+* ## 性骚扰
+    * ### 美团
+        > 2022年10月 应届生在大厂工作两个月，我被新老板性骚扰到“急性应激创伤” [https://baijiahao.baidu.com/s?id=1747548875040785336&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1747548875040785336&wfr=spider&for=pc)  
+                     后续：24小时速报消息：美团白向文秦昌江事件后续已被开除 美团白向文秦昌江照片长什么样？ [https://www.jnw.cc/news/202210/4029690.html](https://www.jnw.cc/news/202210/4029690.html)  
+          2022年7月 美团的最新大瓜来了，爆料者单方面的说法来看，女方跟自己挺惨的 [https://www.163.com/dy/article/HCQTGR550525FCPL.html](https://www.163.com/dy/article/HCQTGR550525FCPL.html)  
+        
 * ## 网红
     * ### 山东
         > 2022年9月 网红团队在公益助农帮农民掰玉米热火朝天你怎么看 [https://www.toutiao.com/video/7148396776142307336/](https://www.toutiao.com/video/7148396776142307336/)  
@@ -167,20 +175,27 @@
     
 * ## 为老不尊，倚老卖老（以后怎么尊老？）
     > 2022年9月 大爷#高铁# 抽烟 这根烟金贵 [https://www.toutiao.com/video/7145479799606247432/?log_from=0984952f99af3_1664161728098](https://www.toutiao.com/video/7145479799606247432/?log_from=0984952f99af3_1664161728098)  
-    * ### 陕西 安康
-        > 2022年8月 陕西15岁男孩阻止63岁男子插队起争吵打架，警方：插队男子被行拘 [https://www.toutiao.com/video/7133053554931171873/?log_from=12f40f094f3b5_1663120462280](https://www.toutiao.com/video/7133053554931171873/?log_from=12f40f094f3b5_1663120462280)  
+    * ### 陕西 
+        * #### 安康
+            > 2022年8月 陕西15岁男孩阻止63岁男子插队起争吵打架，警方：插队男子被行拘 [https://www.toutiao.com/video/7133053554931171873/?log_from=12f40f094f3b5_1663120462280](https://www.toutiao.com/video/7133053554931171873/?log_from=12f40f094f3b5_1663120462280)  
     * ### 吉林
         > 2022年9月 一男孩在荡秋千大爷过来“碰瓷”，孩子直言面对反被打 [https://www.toutiao.com/video/7141292483815669790/?log_from=e02e853005ecb_1663039756638](https://www.toutiao.com/video/7141292483815669790/?log_from=e02e853005ecb_1663039756638)  
-    * ### 河北 沧州
-        > 2022年9月 爷孙俩半夜偷玉米二次被抓 ，辩称是捡的 [https://www.toutiao.com/video/7141971283432066341/?log_from=38543e7cb72bd_1663120632575](https://www.toutiao.com/video/7141971283432066341/?log_from=38543e7cb72bd_1663120632575)  
-    * ### 湖北 武汉 新洲区 熊店村
-        > 2022年8月 投资百万种千亩南瓜遭老人组团偷窃  [https://www.163.com/dy/article/HFGAOV1U0532O6GK.html](https://www.163.com/dy/article/HFGAOV1U0532O6GK.html)  
+    * ### 河北 
+        * #### 沧州
+            > 2022年9月 爷孙俩半夜偷玉米二次被抓 ，辩称是捡的 [https://www.toutiao.com/video/7141971283432066341/?log_from=38543e7cb72bd_1663120632575](https://www.toutiao.com/video/7141971283432066341/?log_from=38543e7cb72bd_1663120632575)  
+    * ### 湖北 
+        * #### 武汉 
+            * ##### 新洲区 
+                * ###### 熊店村
+                    > 2022年8月 投资百万种千亩南瓜遭老人组团偷窃  [https://www.163.com/dy/article/HFGAOV1U0532O6GK.html](https://www.163.com/dy/article/HFGAOV1U0532O6GK.html)  
     * ### 河南
         * #### 南阳
             > 2022年10月 河南南阳一群退休老人，骑车路过他人南瓜田，偷摘南瓜被抓现场 [https://www.toutiao.com/video/7154896515633250307/?log_from=f1508ef35634_1666330428225](https://www.toutiao.com/video/7154896515633250307/?log_from=f1508ef35634_1666330428225)  
     * ### 山西
         * #### 临汾
             > 2022年10月 山西临汾。一大爷偷玉米偷出现实版“泰囧”，自行车不愿意了 [https://www.toutiao.com/video/7154972201773432836/?log_from=964ac0e1e0975_1666330503325](https://www.toutiao.com/video/7154972201773432836/?log_from=964ac0e1e0975_1666330503325)  
+    * ### 重庆
+        > 2022年10月 自称肚饿老人被请吃面，仅吃几口就离开 [https://www.toutiao.com/w/1747193457788935/?log_from=fc24b044f9604_1666849711129](https://www.toutiao.com/w/1747193457788935/?log_from=fc24b044f9604_1666849711129)  
              
 * ## 外卖
     * ### 浙江 
@@ -190,6 +205,7 @@
         * #### 扬州
             > 2022年9月 外卖商家在抹布上切肉配餐，老板：抹布是干净的，没必要揪着小事不放 [https://www.toutiao.com/video/7140896514112487947/](https://www.toutiao.com/video/7140896514112487947/)  
               2022年10月 江苏苏州，外卖小哥曝光一餐馆后厨，环境脏乱差，食材随意乱放 [https://www.toutiao.com/video/7154348486941474820/](https://www.toutiao.com/video/7154348486941474820/)  
+
 * ## 遛狗不拴绳（或拴绳不管狗）
     > 2022年10月 #监控下的一幕 真气人 [https://www.toutiao.com/video/7156175450602097960/?log_from=fa3ba40215ca8_1666332096858](https://www.toutiao.com/video/7156175450602097960/?log_from=fa3ba40215ca8_1666332096858)  
     * ### 广西 
@@ -244,6 +260,7 @@
     * ### 蔚来
         > 2022年8月 蔚来CEO李斌：奔驰宝马奥迪卖多少钱，我们用电车卖它同样价格 [https://www.toutiao.com/video/7137964058405240832/](https://www.toutiao.com/video/7137964058405240832/)  
           2022年9月 李斌：买蔚来汽车很有价值 一种陪伴！买比亚迪的车“没有价值” [https://www.toutiao.com/video/7149057679225258014/](https://www.toutiao.com/video/7149057679225258014/)  
+          2022年10月 李斌称：超越特斯拉没有难度，特斯拉“卖的贵、傲慢、服务差”！ [https://www.toutiao.com/video/7157982045325492255/](https://www.toutiao.com/video/7157982045325492255/)  
     * ### 小鹏
         > 2022年8月 自信还是自大？何小鹏称：未来比马斯克厉害！跟马斯克没有差距 [https://www.toutiao.com/video/7132322336866304041/](https://www.toutiao.com/video/7132322336866304041/)  
 
@@ -256,6 +273,8 @@
         > 2022年10月 10月11日，江苏无锡。#华莱士员工被曝挖鼻孔没洗手拿汉堡。来源：（沸点视频） [https://www.toutiao.com/video/7153866334986718494/?log_from=e1143024cb53d_1666331315896](https://www.toutiao.com/video/7153866334986718494/?log_from=e1143024cb53d_1666331315896)  
     * ### 大润发
         > 2022年10月 网传大润发更换火腿日期，被拍照曝光! [https://www.toutiao.com/video/7153542363292368927/](https://www.toutiao.com/video/7153542363292368927/)  
+    * ### 爱他美卓萃奶粉
+        > 2022年10月 爱他美奶粉中有小虫子？还敢给娃喝吗？ [https://www.toutiao.com/article/7157986782322278912/](https://www.toutiao.com/article/7157986782322278912/)  
 
 * ## 产品
     * ### 周大福
@@ -296,6 +315,7 @@
 * ## 是什么让社会越来越冷漠
     > 2022年9月 极目短评｜男子勇救女童却被指责“手碰隐私部位”：龌龊者看到的世界就是龌龊的 [https://www.toutiao.com/article/7147617901280035364/?log_from=bf646e3c32f77_1664240490097](https://www.toutiao.com/article/7147617901280035364/?log_from=bf646e3c32f77_1664240490097)  
       2021年8月 河北17岁男孩海边救起三女子后遇难，网传获救者翻脸不认人，男孩家属称不属实 [https://www.toutiao.com/article/6994391872609354270/?channel=&source=search_tab](https://www.toutiao.com/article/6994391872609354270/?channel=&source=search_tab)  
+      2022年10月 农民工捡到录取通知书，特地旷工骑车送回，却反遭女孩质问：你凭啥拿走 [https://www.toutiao.com/video/7156568485869387809/?log_from=eb064ae3641b8_1666849383713](https://www.toutiao.com/video/7156568485869387809/?log_from=eb064ae3641b8_1666849383713)  
 
 * ## 违停
     > 2022年9月 女子被违停车挡住出路，多次电话联系却无人接听，抡锤直接砸车 [https://www.toutiao.com/video/7146093955954822412/](https://www.toutiao.com/video/7146093955954822412/)  
@@ -333,6 +353,7 @@
       2022年9月 北京醉驾女司机超速逆行撞死老人！向死者家属赔偿120万获刑2年 [https://www.toutiao.com/video/7144994625005047052/?log_from=eafa3f0fcdcca_1664161674289](https://www.toutiao.com/video/7144994625005047052/?log_from=eafa3f0fcdcca_1664161674289)  
       2022年8月 孩子妈妈要求“红座”女生让座，女生拒绝：为什么我不舒服就不行呢？大爷：受过素质教育吗？来北京干嘛了 [https://www.toutiao.com/video/7132304724711263501/](https://www.toutiao.com/video/7132304724711263501/)  
       2022年9月 女子阻止北京大爷插队反被骂，“哪个村蹦出来的傻帽” [https://www.toutiao.com/video/7148819001265947148/](https://www.toutiao.com/video/7148819001265947148/)  
+      2022年10月 劳斯莱斯堵医院应急通道，交警来了也不好使 [https://www.toutiao.com/video/7156867854250934308/?log_from=442019bbebb7f_1666849641490](https://www.toutiao.com/video/7156867854250934308/?log_from=442019bbebb7f_1666849641490)  
     * ### 北京师范大学
         * #### 某教授
             > 2022年8月 教授建议农民县城买房开车回村种地 [https://www.163.com/dy/article/HFRM4GTH055061FK.html](https://www.163.com/dy/article/HFRM4GTH055061FK.html)  
@@ -377,6 +398,7 @@
     > 2022年9月 摊主卖菜秤不准，顾客不满意，摊主好声好气解释，可摊主的女儿却暴躁起来 [https://www.toutiao.com/video/7144220902652169485/](https://www.toutiao.com/video/7144220902652169485/)  
     * ### 成都
         > 2022年8月 官方回应成都一涉疫理发店消杀被收1.6万元：已约谈相关企业负责人，正在调查 [https://www.toutiao.com/article/7137923297026572832/?channel=&source=search_tab](https://www.toutiao.com/article/7137923297026572832/?channel=&source=search_tab)  
+          2022年10月 10月20日，四川成都。业主在物业工作人员的见证下收房，撕完封条空气瞬间凝固，还没进门心情就不好了#这操作都看傻了 #原谅我不厚道的笑了 #社会百态 @抖音短视频 [https://www.toutiao.com/video/7156929111389113603/?log_from=9a7876e5a7607_1666849586213](https://www.toutiao.com/video/7156929111389113603/?log_from=9a7876e5a7607_1666849586213)  
     * ### 遂宁
         > 2022年7月 展开三四百人蹭超市空调，还有人在里面抽烟打牌，超市负责人：根本没办法弄 [https://www.toutiao.com/video/7120464885959412995/?log_from=79abfbd9b2c46_1663053625383](https://www.toutiao.com/video/7120464885959412995/?log_from=79abfbd9b2c46_1663053625383)  
     * ### 南充
@@ -434,6 +456,9 @@
     * ### 东莞
         > 2022年10月 好心店主在店门口预留插座，没想到场面逐渐失控，有人点起蚊香长住 [https://www.toutiao.com/video/7152328886984920334/](https://www.toutiao.com/video/7152328886984920334/)  
           2022年9月 法治：儿子精神病发作，爸妈任由他杀人，叫嚣：精神病杀人无罪！  [https://www.toutiao.com/video/7147548283445969423/?log_from=fd5149e8648ab_1666332631386](https://www.toutiao.com/video/7147548283445969423/?log_from=fd5149e8648ab_1666332631386)  
+    * ### 韶关
+        > 2022年10月 广东韶关，某高速服务区，一名大货车司机太累了，便停车睡了一觉。万万没想到，醒来后发动车辆却被提示油量不足 [https://www.toutiao.com/w/1747628856240141/](https://www.toutiao.com/w/1747628856240141/)  
+
 * ## 河南
     > 2022年9月 河南一网友在社交平台发布视频称当地一道路工程的沥青路面仅一指厚，质疑工程质量是否达标 [https://www.toutiao.com/w/1743672004068424/?traffic_source=&traffic_source=&in_ogs=&in_ogs=&utm_source=&utm_source=&source=search_tab&source=input&utm_medium=wap_search&utm_medium=wap_search&original_source=&original_source=&in_tfs=&in_tfs=&channel=&channel=](https://www.toutiao.com/w/1743672004068424/?traffic_source=&traffic_source=&in_ogs=&in_ogs=&utm_source=&utm_source=&source=search_tab&source=input&utm_medium=wap_search&utm_medium=wap_search&original_source=&original_source=&in_tfs=&in_tfs=&channel=&channel=)  
       2022年9月 新郎接亲遭女方亲友拦门，整杯白酒要男方一口闷：不喝就看不起人 [https://www.toutiao.com/article/7143528708656235049/](https://www.toutiao.com/article/7143528708656235049/)  
