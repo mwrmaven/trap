@@ -238,6 +238,7 @@
     > 2022年9月 中国人事科学研究院原院长吴江：退休太早，是人才的浪费 [https://www.toutiao.com/video/7145735180974624013/?log_from=b74f1ea976677_1664159677151](https://www.toutiao.com/video/7145735180974624013/?log_from=b74f1ea976677_1664159677151)  
       2022年9月 上半年篮球场上种红薯，下半年下雨天打谷子 [https://www.toutiao.com/video/7147720755348930564/?log_from=175a24b130fb7_1664239893136](https://www.toutiao.com/video/7147720755348930564/?log_from=175a24b130fb7_1664239893136)  
       2022年10月 美国波士顿大学制造出新的新冠病毒毒株，致死率高达80% [https://www.toutiao.com/video/7155757129964506379/?log_from=e603ffb848199_1666330195515](https://www.toutiao.com/video/7155757129964506379/?log_from=e603ffb848199_1666330195515)  
+      2022年10月 男生在某公司实习离奇死在宿舍，家属想见死者却被十多人强行阻止 [https://www.toutiao.com/video/7157226919896252939/?channel=&source=search_tab](https://www.toutiao.com/video/7157226919896252939/?channel=&source=search_tab)  
     * ### 广东 深圳
         > 2022年8月 演员拍环卫工宣传片 真正的环卫工在旁清扫 [https://www.toutiao.com/video/7136001108765379877/?log_from=c58ffc36d128a_1663053047024](https://www.toutiao.com/video/7136001108765379877/?log_from=c58ffc36d128a_1663053047024)  
     * ### 云南镇雄县、重庆长寿区
