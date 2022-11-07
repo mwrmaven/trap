@@ -76,6 +76,9 @@
                   2022年9月 四川师范大学延世大学论中国讲座活动中的韩国教授金珍镐多次声明：端午节，中秋节、泡菜都是韩国的，并且说萨德系统是防御系统 [https://www.toutiao.com/video/7147189984439635214/?log_from=f1e85059805d8_1664154841450](https://www.toutiao.com/video/7147189984439635214/?log_from=f1e85059805d8_1664154841450)  
         * #### 屏山
             > 2022年9月 网传一女生被殴打，四川屏山警方：两名打人者被连夜抓获，另有一人在抓捕中 [https://www.toutiao.com/article/7145231682491286053/?log_from=ce8a64a8b4062_1664162680408](https://www.toutiao.com/article/7145231682491286053/?log_from=ce8a64a8b4062_1664162680408)  
+        * #### 南充
+            * ##### 南部
+                > 2022年11月 学生被要求跪地唱“征服”，视频曝光！四川南部县发通报回应 [https://www.toutiao.com/article/7163140763872821791/?log_from=db8a632d198ff_1667810744489](https://www.toutiao.com/article/7163140763872821791/?log_from=db8a632d198ff_1667810744489)  
     * ### 河南 
         * #### 济源
             > 2022年9月 疑孙子被打不敢上学 河南一老人给多名学生下跪求放过 警方已介入 [https://www.toutiao.com/video/7140175343947776526/?log_from=544397d272b5f_1662458232009](https://www.toutiao.com/video/7140175343947776526/?log_from=544397d272b5f_1662458232009) 
@@ -253,6 +256,7 @@
       2022年10月 无文字 [https://www.toutiao.com/video/7159157255114489895/?log_from=2b98c91906a91_1667809342866](https://www.toutiao.com/video/7159157255114489895/?log_from=2b98c91906a91_1667809342866)
       2022年11月 过分！施工队未经大爷同意强行在田地中施工导致秧苗死亡#农民# #施工# [https://www.toutiao.com/video/7161703186980405288/?log_from=599ec9520a68d_1667802850269](https://www.toutiao.com/video/7161703186980405288/?log_from=599ec9520a68d_1667802850269)  
       2022年11月 明星机场接机，堵住路人乘客道路，最后还骂路人“有病” [https://www.toutiao.com/video/7161615693795754024/?log_from=15666bdbdd317_1667807755548](https://www.toutiao.com/video/7161615693795754024/?log_from=15666bdbdd317_1667807755548)  
+      2022年11月 呼和浩特的李少莉与郑州的刘红英 [https://www.toutiao.com/article/7163076221411050023/?log_from=16c91081133fb_1667810459738](https://www.toutiao.com/article/7163076221411050023/?log_from=16c91081133fb_1667810459738)  
     * ### 广东 深圳
         > 2022年8月 演员拍环卫工宣传片 真正的环卫工在旁清扫 [https://www.toutiao.com/video/7136001108765379877/?log_from=c58ffc36d128a_1663053047024](https://www.toutiao.com/video/7136001108765379877/?log_from=c58ffc36d128a_1663053047024)  
     * ### 云南镇雄县、重庆长寿区
@@ -314,7 +318,9 @@
             > 2022年9月 太嚣张了，少给工资，还打人 [https://www.toutiao.com/w/1745019293292557/](https://www.toutiao.com/w/1745019293292557/)  
     * ### 杭州
         > 2022年10月 杭州公司强制员工加班，领导长按电梯拦截员工不让回家，网友热议 [https://www.toutiao.com/video/7153924787197182494/](https://www.toutiao.com/video/7153924787197182494/)  
-
+    * ### 申通
+        > 2022年10月 申通货运司机车祸身亡：16.5小时跑1200公里，穿工作服6年，公司因第三方劳务派遣不承认其身份 [https://www.toutiao.com/article/7163123625192030727/?log_from=37c4b33a5ed0d_1667811030065](https://www.toutiao.com/article/7163123625192030727/?log_from=37c4b33a5ed0d_1667811030065)  
+        
 * ## 境外诈骗
     * ### 缅北
         > 2022年9月 据闪电新闻9月21日报道，高薪诱惑下，男子被骗缅北，从赌场洗码工作，到被层层转卖进入诈骗团伙。偶然机会，男子换上送水工衣服逃脱，打车直奔国门 [https://www.toutiao.com/video/7145736755050892551/?log_from=b1fe9d91ab077_1664157403090](https://www.toutiao.com/video/7145736755050892551/?log_from=b1fe9d91ab077_1664157403090)  
@@ -666,7 +672,9 @@
 * ## 内蒙古
     * ### 呼和浩特
         > 2022年9月 9月22日，内蒙古呼和浩特，男子骑共享单车时，把头盔踩脚下一路摩擦，目击者：不理解，希望大家不要这样做 [https://www.toutiao.com/video/7146846857904344351/](https://www.toutiao.com/video/7146846857904344351/)  
-
+        * #### 玉泉区
+            > 2022年11月 内蒙一地多名干部疫情期间聚集喝酒 纪委：街道书记等3人被撤职 [https://www.toutiao.com/video/7163175063519232526/?log_from=ea93b8ac18c7c_1667810842462](https://www.toutiao.com/video/7163175063519232526/?log_from=ea93b8ac18c7c_1667810842462)  
+        
 * ## 广西
     > 2022年10月 男子打包4碗粉加4个鸡腿，打开发现鸡腿不对劲：好一招移花接木 [https://www.toutiao.com/video/7151324668438250023/](https://www.toutiao.com/video/7151324668438250023/)  
     * ### 钦州
