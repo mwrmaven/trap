@@ -132,6 +132,9 @@
             * ##### 向阳路小学
                 > 2022年9月 9月23日，江苏盐城，网曝向阳路小学二年级一老师，将收礼账本误发到家长群。收礼金额在500到1000元不等。当地教育局表示已听说该事，纪委正在调查中 [https://www.toutiao.com/video/7146449403417545991/?log_from=e18485cda35ac_1664158195186](https://www.toutiao.com/video/7146449403417545991/?log_from=e18485cda35ac_1664158195186)  
                   2022年9月 江苏一小学老师误将收礼记录发班级群？教育局证实确为当地小学老师，目前正在调查中 [https://www.toutiao.com/article/7146457037218890278/](https://www.toutiao.com/article/7146457037218890278/)  
+        * #### 宿迁
+            * ##### 沭阳
+                > 2022年11月 江苏宿迁一教师因学生默不出古诗猛扇其耳光，11月5日，校方回应：正在处理此事，对于该教师的处理意见暂未出来 [https://www.toutiao.com/video/7162677162376563981/](https://www.toutiao.com/video/7162677162376563981/)  
     * ### 吉林
         * #### 敦化
             * ##### 六小
@@ -141,13 +144,19 @@
             * ##### 曲江新区
                 * ###### 曲江第五小学
                     > 2022年10月 西安曲江五小一学生坠井溺亡，学校不积极救援反而施压家长？ [https://www.163.com/dy/article/HJDH66BA0548MGXN.html](https://www.163.com/dy/article/HJDH66BA0548MGXN.html)  
-            
+    * ### 江西
+        * #### 吉安
+            > 2022年10月 10月26日，江西吉安，班里学生不会整体认读音节，老师拍视频质问家长：“家长怎么辅导的，这课上不下去了”#师德何在 #真的栓q了 @抖音短视频 [https://www.toutiao.com/video/7160136137753791747/?log_from=a5ddbd4317414_1667808236915](https://www.toutiao.com/video/7160136137753791747/?log_from=a5ddbd4317414_1667808236915)        
     
 * ## 牧羊犬
     * ### 上海
         > 2022年10月 老外未扫健康码被保安勒令下车！同车人：你知道上海留住老外多难吗？ [https://www.toutiao.com/article/7150605401724305958/](https://www.toutiao.com/article/7150605401724305958/)  
     
+* ### 洋垃圾
+    > 2022年10月 网友爆料 [https://www.toutiao.com/video/7159139397323980831/?log_from=df30bf5670c61_1667809256983](https://www.toutiao.com/video/7159139397323980831/?log_from=df30bf5670c61_1667809256983)  
+ 
 * ## 以小孩之名做非法(或行为不当)之事，监护人逃避责任（以后怎么爱幼？）
+    > 2022年8月 孩子在列车上不停拍打置物板 家长无动于衷 [https://www.toutiao.com/video/7133417526779825444/?log_from=f4a3d1983f98d_1667808391688](https://www.toutiao.com/video/7133417526779825444/?log_from=f4a3d1983f98d_1667808391688)  
     * ### 浙江
         * #### 杭州
             > 2022年9月 9月24日，浙江杭州一男孩地铁闹着抢座，一屁股坐女乘客腿上撒泼，“小孩子坐坐还不行啊”。事后女子回应：不是跟小孩计较，气的是家长没有及时制止孩子不当行为 [https://www.toutiao.com/video/7147220220535426311/?log_from=cd7456c81976c_1664156183680](https://www.toutiao.com/video/7147220220535426311/?log_from=cd7456c81976c_1664156183680)  
@@ -164,6 +173,7 @@
             > 2022年9月 3岁男孩脚踢宠物狗 家长在旁的反应气坏狗主人 [https://www.toutiao.com/video/7147622911048731918/](https://www.toutiao.com/video/7147622911048731918/)  
     * ### 重庆
         > 2022年9月 9月25日，重庆。男孩放跑宠物店里价值20000元的猫，店长：已报警，希望按原价赔偿 [https://www.toutiao.com/video/7148280638641048845/](https://www.toutiao.com/video/7148280638641048845/)  
+          2022年10月 重庆一小学生手拿硬物一路刮车，路人劝说无果 [https://www.toutiao.com/video/7160556573603921953/?log_from=6e6ad75cc7f69_1667808093537](https://www.toutiao.com/video/7160556573603921953/?log_from=6e6ad75cc7f69_1667808093537)  
     * ### 湖北
         * #### 武汉
             > 2022年8月 小孩对女子比中指辱骂，女子：他们在店里吵闹，就看了两眼 [https://www.toutiao.com/video/7137311250920279333/](https://www.toutiao.com/video/7137311250920279333/)  
@@ -239,6 +249,10 @@
       2022年9月 上半年篮球场上种红薯，下半年下雨天打谷子 [https://www.toutiao.com/video/7147720755348930564/?log_from=175a24b130fb7_1664239893136](https://www.toutiao.com/video/7147720755348930564/?log_from=175a24b130fb7_1664239893136)  
       2022年10月 美国波士顿大学制造出新的新冠病毒毒株，致死率高达80% [https://www.toutiao.com/video/7155757129964506379/?log_from=e603ffb848199_1666330195515](https://www.toutiao.com/video/7155757129964506379/?log_from=e603ffb848199_1666330195515)  
       2022年10月 男生在某公司实习离奇死在宿舍，家属想见死者却被十多人强行阻止 [https://www.toutiao.com/video/7157226919896252939/?channel=&source=search_tab](https://www.toutiao.com/video/7157226919896252939/?channel=&source=search_tab)  
+      2022年10月 #新闻# #社会百态# [https://www.toutiao.com/video/7159768400657383457/?log_from=2fbb94a93dd47_1667809018831](https://www.toutiao.com/video/7159768400657383457/?log_from=2fbb94a93dd47_1667809018831)  
+      2022年10月 无文字 [https://www.toutiao.com/video/7159157255114489895/?log_from=2b98c91906a91_1667809342866](https://www.toutiao.com/video/7159157255114489895/?log_from=2b98c91906a91_1667809342866)
+      2022年11月 过分！施工队未经大爷同意强行在田地中施工导致秧苗死亡#农民# #施工# [https://www.toutiao.com/video/7161703186980405288/?log_from=599ec9520a68d_1667802850269](https://www.toutiao.com/video/7161703186980405288/?log_from=599ec9520a68d_1667802850269)  
+      2022年11月 明星机场接机，堵住路人乘客道路，最后还骂路人“有病” [https://www.toutiao.com/video/7161615693795754024/?log_from=15666bdbdd317_1667807755548](https://www.toutiao.com/video/7161615693795754024/?log_from=15666bdbdd317_1667807755548)  
     * ### 广东 深圳
         > 2022年8月 演员拍环卫工宣传片 真正的环卫工在旁清扫 [https://www.toutiao.com/video/7136001108765379877/?log_from=c58ffc36d128a_1663053047024](https://www.toutiao.com/video/7136001108765379877/?log_from=c58ffc36d128a_1663053047024)  
     * ### 云南镇雄县、重庆长寿区
@@ -276,6 +290,10 @@
         > 2022年10月 网传大润发更换火腿日期，被拍照曝光! [https://www.toutiao.com/video/7153542363292368927/](https://www.toutiao.com/video/7153542363292368927/)  
     * ### 爱他美卓萃奶粉
         > 2022年10月 爱他美奶粉中有小虫子？还敢给娃喝吗？ [https://www.toutiao.com/article/7157986782322278912/](https://www.toutiao.com/article/7157986782322278912/)  
+    * ### 自热火锅
+        > 2022年11月 据中国新闻周刊11月3日报道，近日，四川凉山，卢先生反映，妻子与女儿、母亲食用某品牌自热火锅疑似出现食物中毒症状，妻子抢救无效身亡 [https://www.toutiao.com/video/7161771488079613221/?log_from=496fdffe6435d_1667801284252](https://www.toutiao.com/video/7161771488079613221/?log_from=496fdffe6435d_1667801284252)  
+    * ### 必胜客
+        > 2022年10月 必胜客使用过期食材被罚10万元，并没收违法所得463元 [https://www.toutiao.com/video/7159087301362978061/?log_from=79e67cbe5aa9f_1667809156688](https://www.toutiao.com/video/7159087301362978061/?log_from=79e67cbe5aa9f_1667809156688)  
 
 * ## 产品
     * ### 周大福
@@ -302,6 +320,7 @@
         > 2022年9月 据闪电新闻9月21日报道，高薪诱惑下，男子被骗缅北，从赌场洗码工作，到被层层转卖进入诈骗团伙。偶然机会，男子换上送水工衣服逃脱，打车直奔国门 [https://www.toutiao.com/video/7145736755050892551/?log_from=b1fe9d91ab077_1664157403090](https://www.toutiao.com/video/7145736755050892551/?log_from=b1fe9d91ab077_1664157403090)  
 
 * ## 物业
+    > 2022年11月 @王陈拍案:保安当着警察的面，辱骂威胁业主不要忘了你老婆孩子#小区保安# [https://www.toutiao.com/video/7160204725952970752/?log_from=dad558c005c3_1667807890129](https://www.toutiao.com/video/7160204725952970752/?log_from=dad558c005c3_1667807890129)  
     * ### 江苏
         * #### 苏州
             > 2022年9月 业主和保安因登记问题发生争执，保安语出惊人：业主没我们服务啥都不是 [https://www.toutiao.com/video/7145407000900308224/?log_from=ea67dd01f74bc_1664158674271](https://www.toutiao.com/video/7145407000900308224/?log_from=ea67dd01f74bc_1664158674271)  
@@ -321,6 +340,13 @@
 * ## 违停
     > 2022年9月 女子被违停车挡住出路，多次电话联系却无人接听，抡锤直接砸车 [https://www.toutiao.com/video/7146093955954822412/](https://www.toutiao.com/video/7146093955954822412/)  
           
+* ## 圣母婊，慷他人之慨
+    > 2022年11月 男子请他人为孕妇让座被疑道德绑架#：看孕妇反复蹲站实在看不下去 [https://www.toutiao.com/w/1748644065760263/?log_from=5d0f56eef12e3_1667802172783#comment](https://www.toutiao.com/w/1748644065760263/?log_from=5d0f56eef12e3_1667802172783#comment)  
+
+* ## 药店
+    * ### 陕西
+        * #### 西安
+            > 2022年10月 店员说缺货推荐高价药，被顾客找到指定药品#百姓生活 #药品 #消费 [https://www.toutiao.com/video/7159775320038493470/?log_from=6ad48f6d94115_1667808681128](https://www.toutiao.com/video/7159775320038493470/?log_from=6ad48f6d94115_1667808681128)  
 ***  
 
 * ## 河北  
@@ -333,6 +359,7 @@
           2022年9月 男子包地种白薯遭大妈组团偷挖 ：制止不了，我去了她们也不走 [https://www.toutiao.com/video/7145649007308705054/?log_from=19aedd6bfed8a_1664160192509](https://www.toutiao.com/video/7145649007308705054/?log_from=19aedd6bfed8a_1664160192509)  
     * ### 保定
         > 2022年9月 保定中国银行仁和支行：多年未用的存折被清零注销，我的8000块钱去哪了？ [https://www.toutiao.com/video/7139525662951342596/?log_from=c88fe0d4c5b5b_1662513528583](https://www.toutiao.com/video/7139525662951342596/?log_from=c88fe0d4c5b5b_1662513528583)  
+          2022年11月 业主上门要租金被商铺拿灭火器喷，警方：目前已介入调查#真实事件 #最新通报 #热点新闻事件 [https://www.toutiao.com/video/7162001213972647199/](https://www.toutiao.com/video/7162001213972647199/)  
     * ### 石家庄
         > 2022年9月 疫情下凭借核酸证明刚开店，正在干活，突然她们就过来，让给个8块10块的 [https://www.toutiao.com/video/7144570717877669160/](https://www.toutiao.com/video/7144570717877669160/)  
           2022年9月 9月14日，河北石家庄。女子骑车闯红灯被撞，反问交警：她为什么不让我？最终被认定为承担全责 [https://www.toutiao.com/video/7146535643689028900/?log_from=66b456e2d560c_1664158044794](https://www.toutiao.com/video/7146535643689028900/?log_from=66b456e2d560c_1664158044794)  
@@ -346,6 +373,8 @@
           2022年9月 女子地下车库随意抛洒大量垃圾，怕人发现踢他人车下 [https://www.toutiao.com/video/7144985469346909470/?log_from=74b232a7c4b71_1664160254100](https://www.toutiao.com/video/7144985469346909470/?log_from=74b232a7c4b71_1664160254100)  
     * ### 荆州
         > 2022年9月 女子治疗胆结石被收“牙科6000元”，荆州市中心医院称操作失误已退费 [https://www.toutiao.com/article/7138696631125279265/?channel=&source=search_tab](https://www.toutiao.com/article/7138696631125279265/?channel=&source=search_tab)  
+    * ### 恩施
+        > 2022年7月 当晚龚某越发感觉有蹊跷，第二天在履行赔偿协议时双方再次发生纠纷，交警快骑介入，由此得知几人的密谋 [https://www.toutiao.com/video/7137954612224576776/?log_from=cdef25ba782ed_1667808509832](https://www.toutiao.com/video/7137954612224576776/?log_from=cdef25ba782ed_1667808509832)  
    
 * ## 北京
     > 2022年8月 超市被偷东西是受害者，凭啥还为此买单(偷东西还能偷出道理，真是奇葩) [https://www.toutiao.com/video/7127207472162406915/?log_from=f14e8c85efdda_1662516012958](https://www.toutiao.com/video/7127207472162406915/?log_from=f14e8c85efdda_1662516012958)  
@@ -387,6 +416,8 @@
           2022年9月 高中生在济南乘新能源出租车 65公里花了719元 [https://www.toutiao.com/video/7146078860101025804/?log_from=22ac689201252_1664157005906](https://www.toutiao.com/video/7146078860101025804/?log_from=22ac689201252_1664157005906)  
     * ### 菏泽
         > 2022年9月 拦路绳不明显，菏泽一男子骑电车被拦路绳勒住脖颈，已打120 [https://www.toutiao.com/video/7145289851288420391/?log_from=514aa8ba47692_1664156849298](https://www.toutiao.com/video/7145289851288420391/?log_from=514aa8ba47692_1664156849298)  
+    * ### 淄博
+        > 2022年10月 女子要15元的糕，大爷一刀下去切了56元的，大爷拦车不让走，女子无奈报警#切糕真的这么贵吗 #切糕 #街边小吃 #消费 [https://www.toutiao.com/video/7158343455679335716/?log_from=e470eb1b65652_1667808459125](https://www.toutiao.com/video/7158343455679335716/?log_from=e470eb1b65652_1667808459125)  
     
 * ## 新疆
     * ### 牛奶
@@ -400,6 +431,8 @@
     * ### 成都
         > 2022年8月 官方回应成都一涉疫理发店消杀被收1.6万元：已约谈相关企业负责人，正在调查 [https://www.toutiao.com/article/7137923297026572832/?channel=&source=search_tab](https://www.toutiao.com/article/7137923297026572832/?channel=&source=search_tab)  
           2022年10月 10月20日，四川成都。业主在物业工作人员的见证下收房，撕完封条空气瞬间凝固，还没进门心情就不好了#这操作都看傻了 #原谅我不厚道的笑了 #社会百态 @抖音短视频 [https://www.toutiao.com/video/7156929111389113603/?log_from=9a7876e5a7607_1666849586213](https://www.toutiao.com/video/7156929111389113603/?log_from=9a7876e5a7607_1666849586213)  
+          2022年10月 你遇到过这种骗术吗 [https://www.toutiao.com/video/7161273558231010564/?log_from=57e65de5cba76_1667807700451](https://www.toutiao.com/video/7161273558231010564/?log_from=57e65de5cba76_1667807700451)  
+          2022年10月 网友发现路边的无线充电点充不进电，用手一抠发现就是一块盖板，并未接电#意不意外#无线充电点 [https://www.toutiao.com/video/7160598552912071947/?log_from=5bef050e83d05_1667808144882](https://www.toutiao.com/video/7160598552912071947/?log_from=5bef050e83d05_1667808144882)  
     * ### 遂宁
         > 2022年7月 展开三四百人蹭超市空调，还有人在里面抽烟打牌，超市负责人：根本没办法弄 [https://www.toutiao.com/video/7120464885959412995/?log_from=79abfbd9b2c46_1663053625383](https://www.toutiao.com/video/7120464885959412995/?log_from=79abfbd9b2c46_1663053625383)  
     * ### 南充
@@ -427,8 +460,11 @@
             > 2022年9月 冒名顶替当老师17年，被拆穿后当街辱骂暴打原主，结局非常解气 [https://www.toutiao.com/video/7138349089741079077/?log_from=4a146a2d10a86_1666332302259](https://www.toutiao.com/video/7138349089741079077/?log_from=4a146a2d10a86_1666332302259)  
     * ### 阜阳
         > 2022年9月 老人在正在运行的收割机前偷玉米 [https://www.toutiao.com/video/7144566912322784525/](https://www.toutiao.com/video/7144566912322784525/)  
+          2022年11月 11月5日，安徽阜阳。一男子用三轮车拦在婚车前头，自己下车坐地上将脚伸到车轮下索要红包。婚车司机：最后主家嫌耽误时间，给了一盒烟让男子离开了 [https://www.toutiao.com/video/7162524571072072990/?log_from=652630cd83746_1667801346911](https://www.toutiao.com/video/7162524571072072990/?log_from=652630cd83746_1667801346911)  
     * ### 滁州
         > 2022年9月 9月23日，安徽滁州。男子为自己家孩子抢夺玩具，把三岁男孩拖拽倒地。家长：上来就骂我妈妈，不接受道歉 [https://www.toutiao.com/video/7147598455077195011/?log_from=4f6db7f1f7d33_1664239897489](https://www.toutiao.com/video/7147598455077195011/?log_from=4f6db7f1f7d33_1664239897489)  
+    * ### 蚌埠
+        > 2022年10月 吐唾沫贴单子？业主在监控看到直呼恶心#社会百态 #万万没想到 #这操作都看傻了 #监控下的一幕 @抖音短视频 [https://www.toutiao.com/video/7160962475632905483/?log_from=72cd180f53eb2_1667807953285](https://www.toutiao.com/video/7160962475632905483/?log_from=72cd180f53eb2_1667807953285)  
 
 * ## 上海
     > 2022年8月 国务院大督查曝光！上海办理居住证要先缴税？ [https://m.thecover.cn/video_details.html?id=9643046](https://m.thecover.cn/video_details.html?id=9643046)  
@@ -446,12 +482,14 @@
     * ### 深圳
         > 2022年9月 女子做核酸插队，男子拍视频指责时，女子跳舞比耶回应 [https://www.toutiao.com/video/7143600457838120223/](https://www.toutiao.com/video/7143600457838120223/)  
           2022年9月 据白鹿视频，9月19日，广东深圳。男子偷外卖被外卖小哥抓个正着，用胶带绑在电线杆上后报警，期间男子不断大声呼喊“救命”引路人围观 [https://www.toutiao.com/video/7145235396631203079/?log_from=86b2cc029c26d_1664162057231](https://www.toutiao.com/video/7145235396631203079/?log_from=86b2cc029c26d_1664162057231)  
+          2022年11月 深圳女子坐地铁没有座位，气急败坏嘲讽男乘客不让座，男乘客气笑 [https://www.toutiao.com/video/7160876455411647010/?log_from=b2c45435b881d_1667808016593](https://www.toutiao.com/video/7160876455411647010/?log_from=b2c45435b881d_1667808016593)  
     * ### 中山
         > 2022年9月 西部决策9月15日发布，女子被男友控制，办证时写纸条求助 ：手机被没收，逃跑会遭到殴打 [https://www.toutiao.com/video/7143513781719534862/](https://www.toutiao.com/video/7143513781719534862/)  
     * ### 广州
         > 2022年9月 女子高速上拦车 谎称借钱加油，被拦车主一句话让其露馅 [https://www.toutiao.com/video/7146882499103198495/](https://www.toutiao.com/video/7146882499103198495/)  
           2022年9月 9月23日，广东广州，大妈趁小伙买水时拿走滑板，小伙发现后火速追上从后背抢回 [https://www.toutiao.com/video/7146890946700004643/](https://www.toutiao.com/video/7146890946700004643/)  
           2022年10月 10月6日广东广州，饭店员工当着顾客面，把扫地垃圾倒进收餐盘的箱子 [https://www.toutiao.com/video/7151756606789799199/](https://www.toutiao.com/video/7151756606789799199/)  
+          2022年11月 11月4日广东广州：太嚣张了，恶意别车＋竖不雅手势！开车莫斗气，安全驾驶是第一。#本地新闻 #广东广州 #恶意别车 [https://www.toutiao.com/video/7162088514539015465/?log_from=ad94d3b766ed8_1667802645841](https://www.toutiao.com/video/7162088514539015465/?log_from=ad94d3b766ed8_1667802645841)  
     * ### 茂名
         > 2022年9月 9月18日，广东茂名。邵先生表示，家里准备拆旧建新，老人就在空地上堆杂物种植物霸占。老人大概80岁左右，每次看到自己家人出现在这块地上就会高空抛物 [https://www.toutiao.com/video/7145743675274972424/?log_from=cb0d8ecc20c23_1664159176405](https://www.toutiao.com/video/7145743675274972424/?log_from=cb0d8ecc20c23_1664159176405)  
     * ### 东莞
@@ -459,6 +497,8 @@
           2022年9月 法治：儿子精神病发作，爸妈任由他杀人，叫嚣：精神病杀人无罪！  [https://www.toutiao.com/video/7147548283445969423/?log_from=fd5149e8648ab_1666332631386](https://www.toutiao.com/video/7147548283445969423/?log_from=fd5149e8648ab_1666332631386)  
     * ### 韶关
         > 2022年10月 广东韶关，某高速服务区，一名大货车司机太累了，便停车睡了一觉。万万没想到，醒来后发动车辆却被提示油量不足 [https://www.toutiao.com/w/1747628856240141/](https://www.toutiao.com/w/1747628856240141/)  
+    * ### 珠海
+        > 2022年10月 10月26日#广东珠海 一男子开保时捷撞到电瓶车后疑似肇事逃逸，被交警追回后对着电瓶车车主：开个破电瓶车，油门都加不起！#文明出行 #豪车 #社会百态 [https://www.toutiao.com/video/7159370342237015310/?log_from=6d0b467d71afc_1667810102788](https://www.toutiao.com/video/7159370342237015310/?log_from=6d0b467d71afc_1667810102788)  
 
 * ## 河南
     > 2022年9月 河南一网友在社交平台发布视频称当地一道路工程的沥青路面仅一指厚，质疑工程质量是否达标 [https://www.toutiao.com/w/1743672004068424/?traffic_source=&traffic_source=&in_ogs=&in_ogs=&utm_source=&utm_source=&source=search_tab&source=input&utm_medium=wap_search&utm_medium=wap_search&original_source=&original_source=&in_tfs=&in_tfs=&channel=&channel=](https://www.toutiao.com/w/1743672004068424/?traffic_source=&traffic_source=&in_ogs=&in_ogs=&utm_source=&utm_source=&source=search_tab&source=input&utm_medium=wap_search&utm_medium=wap_search&original_source=&original_source=&in_tfs=&in_tfs=&channel=&channel=)  
@@ -471,6 +511,7 @@
           2014年9月 大爷狂扇不让座小伙4个巴掌后猝死，家属索赔50万，郑州法院判了 [https://www.toutiao.com/article/7127962672427090466/?channel=&source=search_tab](https://www.toutiao.com/article/7127962672427090466/?channel=&source=search_tab)  
           2022年10月 10月2日，河南郑州#摩托车高速遇堵走应急车道出车祸 [https://www.toutiao.com/video/7150163716552867874/](https://www.toutiao.com/video/7150163716552867874/)  
           2022年10月 河南郑州一女子在美食城抽中一等奖。老板称指针有问题拒绝兑奖 [https://www.toutiao.com/video/7153090951051739168/](https://www.toutiao.com/video/7153090951051739168/)  
+          2022年11月 #媒体人周刊# “21世纪的何不食肉糜” [https://www.toutiao.com/w/1748783476411460/?log_from=2b28c89ea3ac6_1667801552463](https://www.toutiao.com/w/1748783476411460/?log_from=2b28c89ea3ac6_1667801552463)  
     * ### 商丘
         > 2022年9月 女子悔婚拒不退还18万元彩礼，聊天中称“全部给弟弟买了车”，男子开车挂横幅满村寻人 [https://www.toutiao.com/video/7142430114662354189/?log_from=313eca523c6e4_1663053719217](https://www.toutiao.com/video/7142430114662354189/?log_from=313eca523c6e4_1663053719217)
           2022年9月 女方拒退彩礼男子挂横幅寻人后续，冲动做法被法院叫停：全都是和父母辛辛苦苦凑的，不接受打折返还 [https://www.toutiao.com/video/7142832387997633795/](https://www.toutiao.com/video/7142832387997633795/)  
@@ -512,7 +553,11 @@
         > 2022年7月 女子遇民警反诈浑身发抖求助骗子 [https://www.toutiao.com/video/7142799513374297357/](https://www.toutiao.com/video/7142799513374297357/)  
     * ### 杭州
         > 2022年9月 外卖小哥曝光，餐馆女员工抽着烟包馄饨 [https://www.toutiao.com/video/7144522089129577760/](https://www.toutiao.com/video/7144522089129577760/)  
-          9月17日，浙江杭州。餐厅菜品用大米摆盘，顾客：饭都没煮熟就端上来了。网友：分明是大米刺身 [https://www.toutiao.com/video/7145020255314726174/?log_from=5cf232dab44a6_1664162095524](https://www.toutiao.com/video/7145020255314726174/?log_from=5cf232dab44a6_1664162095524)  
+          2022年9月 9月17日，浙江杭州。餐厅菜品用大米摆盘，顾客：饭都没煮熟就端上来了。网友：分明是大米刺身 [https://www.toutiao.com/video/7145020255314726174/?log_from=5cf232dab44a6_1664162095524](https://www.toutiao.com/video/7145020255314726174/?log_from=5cf232dab44a6_1664162095524)  
+          2022年10月 网曝一女子地铁里红包占座，旁人提醒仍然拒绝挪包。#杭州 #地铁 #占座 [https://www.toutiao.com/video/7158283960945069349/?log_from=11f1cc70dc2c5_1667808630301](https://www.toutiao.com/video/7158283960945069349/?log_from=11f1cc70dc2c5_1667808630301)  
+    * ### 舟山
+        * #### 普陀
+            > 2022年11月 又见“开门杀”！出租车乘客贸然推车门，撞倒电动车男子！#交通安全 #安全出行 [https://www.toutiao.com/video/7161976797096054023/?log_from=015f1c5a2dcaa_1667801384019](https://www.toutiao.com/video/7161976797096054023/?log_from=015f1c5a2dcaa_1667801384019)        
           
 * ## 贵州
     * ### 贵阳
@@ -538,6 +583,7 @@
         > 2022年8月 干活被人骚扰，报警抓他 [https://www.toutiao.com/video/7153801149793959944/?log_from=0fdf8278bb22d_1666331558063](https://www.toutiao.com/video/7153801149793959944/?log_from=0fdf8278bb22d_1666331558063)  
     
 * ## 黑龙江
+    > 2022年11月 看着就生气！男子边讲电话边掰下奔驰车标，不料被车主的记录仪全程拍下 [https://www.toutiao.com/video/7161443288245914919/?log_from=8a0f46fc0a4c1_1667803006118](https://www.toutiao.com/video/7161443288245914919/?log_from=8a0f46fc0a4c1_1667803006118)
     * ### 绥化
         > 2022年9月 全网最有恃无恐最淡定的小偷 [https://www.toutiao.com/w/1743184804829187/](https://www.toutiao.com/w/1743184804829187/)  
     * ### 哈尔滨
@@ -545,13 +591,19 @@
     * ### 佳木斯
         > 2022年9月 网传社区防疫人员将居民大米倒入垃圾桶、鸡蛋捣碎，黑龙江佳木斯通报 [https://www.toutiao.com/article/7147638572416401920/?log_from=c420365703aeb_1664239899161](https://www.toutiao.com/article/7147638572416401920/?log_from=c420365703aeb_1664239899161)  
     * ### 鹤岗
-        * ### 工农区
+        * #### 工农区
             > 2022年10月 这嚣张的样子，在派出所还敢辱骂殴打民警，刑拘 [https://www.toutiao.com/video/7150116164364926976/](https://www.toutiao.com/video/7150116164364926976/)  
+    * ### 五常
+        > 2022年11月 救护车坐地起价？官方迅速查处：涉事人员被抓，案件进入司法程序 [https://www.toutiao.com/video/7162106400263425293/](https://www.toutiao.com/video/7162106400263425293/)  
+    * ### 鸡西
+        > 2022年10月 都是劳动者，需要互相体谅啊 [https://www.toutiao.com/video/7159730975289707806/?log_from=0590ea4c78b93_1667809089763](https://www.toutiao.com/video/7159730975289707806/?log_from=0590ea4c78b93_1667809089763)  
 
 * ## 吉林
     > 2022年9月 楼上邻居骗走女子新房钥匙，擅将下水管装满天花板 女子: 协商无果 已起诉 [https://www.toutiao.com/video/7146025125886954783/?log_from=3cf7a2e93e09e_1664158793453](https://www.toutiao.com/video/7146025125886954783/?log_from=3cf7a2e93e09e_1664158793453)  
     * ### 松原
         > 2022年2月 12岁男孩5个月内2次切阑尾花费十几万 [https://www.toutiao.com/video/7140949849167364612/](https://www.toutiao.com/video/7140949849167364612/)  
+    * ### 长春
+        > 2022年10月 大爷在免费停车场借促销玻璃水收费， 直言：害怕曝光不敢收钱 [https://www.toutiao.com/video/7159369296936832264/?log_from=0dee9ae330646_1667809209591](https://www.toutiao.com/video/7159369296936832264/?log_from=0dee9ae330646_1667809209591)  
 
 * ## 陕西
     * ### 临汾
@@ -565,7 +617,8 @@
 * ## 重庆
     * ### 万州
         > 2022年9月 因鸭血的市场远远高于猪血，男子将190公斤猪血制假鸭血售卖，注水提亮颜色，兑甲醛保鲜防腐 [https://www.toutiao.com/video/7142996964769107207/](https://www.toutiao.com/video/7142996964769107207/)  
-
+          2022年10月 学校通报食堂阿姨将食物扔回菜盆，涉事工作人员已被开除。#社会百态 [https://www.toutiao.com/video/7159487160922557734/?log_from=9d61bcce0acc8_1667808333473](https://www.toutiao.com/video/7159487160922557734/?log_from=9d61bcce0acc8_1667808333473)  
+                 
 * ## 江西
     * ### 南昌
         > 2022年9月 男子从夜宵店吃完饭出来开车回家，不到3分钟被红车在马路上倒车撞到 [https://www.toutiao.com/video/7143113698515733774/](https://www.toutiao.com/video/7143113698515733774/)  
@@ -585,11 +638,13 @@
         > 2022年8月 工人在楼下施工，楼上男子高空抛狗屎！拍摄者：他经常这样 [https://www.toutiao.com/video/7136015916889836813/](https://www.toutiao.com/video/7136015916889836813/)  
     * ### 无锡
         > 2022年10月 10月2日，江苏无锡，#两男子捶打推倒熊猫玩偶，目击者：他们一直在笑，很气愤 [https://www.toutiao.com/video/7150307131235781901/](https://www.toutiao.com/video/7150307131235781901/)  
+    * ### 镇江
+        > 2022年11月 胆子太大！女子高铁上一人霸三座，被提醒后现场发飙大骂乘务员 [https://www.toutiao.com/video/7161358845095182374/?log_from=afb18fda63314_1667807808432](https://www.toutiao.com/video/7161358845095182374/?log_from=afb18fda63314_1667807808432)  
 
 * ## 海南
     * ### 海口
         > 2022年9月 海口市公安局美兰分局通报"3男子碰撞打砸车辆"：实施诈骗活动，分赃不均引发冲突 [https://www.toutiao.com/video/7144865594150571271/](https://www.toutiao.com/video/7144865594150571271/)  
-
+          2022年10月 10月28日海南海口，神秘人拿砖块猛砸房门，女子惊醒后不敢再睡 [https://www.toutiao.com/video/7160277378147618081/?log_from=5fb91ad479a4a_1667808200495](https://www.toutiao.com/video/7160277378147618081/?log_from=5fb91ad479a4a_1667808200495)  
 * ## 宁夏
     * ### 固原
         * #### 西吉县
